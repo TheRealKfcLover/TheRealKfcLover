@@ -6,7 +6,7 @@
 Here are some ideas to get you started:
 
 - 🔭 I’m currently working on nothing
-- 🌱 I’m currently learning being a disappointment
+- 🌱 I’m currently learning about being a disappointment
 - 👯 I’m looking to collaborate on nothing
 - 🤔 I’m looking for help with nothing
 - 💬 Ask me about nothing
